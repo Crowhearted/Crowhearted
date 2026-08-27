@@ -7,4 +7,4 @@ I’m in a lot of fandoms, but my current main interests are Pokémon, Markiplie
 
 Thanks for reading, have a wonderful day!
 
-<img width="112" height="112" alt="Image" src="https://github.com/user-attachments/assets/a9fd7d64-c8b6-4275-929c-029396e17b6f" />
+<img width="112" height="112" alt="image" src="https://github.com/user-attachments/assets/7622b410-4f9b-4fe5-9490-a124abb83b08" />
