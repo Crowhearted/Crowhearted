@@ -1,7 +1,7 @@
 # Info
-Hi! This is a work in progress. Mind the mess!
+Hi! This is a work in progress; please excuse the low quality.
 
-Please note before interacting that I’m neurodivergent and have some troubles talking with people. I may act strange, so please be patient. I sometimes also freeze up and stop talking when feeling anxious or shy. Please don’t take it personally if I do.
+BYI: please note that I’m neurodivergent and have some troubles talking with people. I may act strange, so please be patient. I sometimes also freeze up and stop talking when feeling anxious or shy. Please don’t take it personally if I do.
 
 I’m in a lot of fandoms, but my current main interests are Pokémon, Markiplier egos, and Vampires SMP.
 
