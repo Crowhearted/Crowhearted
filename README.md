@@ -3,7 +3,7 @@ Hi! This is a work in progress; please excuse the low quality.
 
 BYI: please note that I’m neurodivergent and have some troubles talking with people. I may act strange, so please be patient. I sometimes also freeze up and stop talking when feeling anxious or shy. Please don’t take it personally if I do.
 
-I’m in a lot of fandoms, but my current main interests are Pokémon, Markiplier egos, and Vampires SMP.
+I’m in a lot of fandoms, but my current main interests are Pokémon, Markiplier egos, Block Tales, and Vampires SMP.
 
 Thanks for reading, have a wonderful day!
 
